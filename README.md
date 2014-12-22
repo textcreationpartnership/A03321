@@ -37,16 +37,138 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Daungerous positions and proceedings published and practised within the iland of Brytaine, vnder pre
+
+1. An aduertisement to the Reader.
+The Contents of the first Booke.OF two sorts of men that especially disturbe the Church of England,
+Thou shalt not rayle vpon the Iudges,Exod. 22. 28. neither speake euill of
+the Ruler of the people.T
 #####Body#####
 
-1. The Decrees.
+1. THE FIRST BOOKE OF
+DISCIPLINARY GROVNDES
+and Practises.
 
-1. Synodes.
+    _ CHAP. I.
 
-1. Hitherto concerning particular assemblies. Now followes
+    _ CHAP. II.
+
+    _ CHAP. III.
+
+    _ CHAP. IIII.
+
+    _ CHAP. V.
+
+    _ CHAP. VI.
+
+1. THE SECOND BOOKE OF
+DISCIPLINARY GROVNDES
+and Practises.
+
+    _ CHAP. I.
+
+    _ CHAP. II.
+
+    _ CHAP. III.
+
+    _ CHAP. IIII.
+
+    _ CHAP. V.
+
+    _ CHAP. VI.
+
+    _ CHAP. VII.
+
+    _ CHAP. VIII.
+
+    _ CHAP. IX.
+
+    _ CHAP. X.
+
+    _ CHAP. XI.
+
+    _ CHAP. XII.
+
+    _ CHAP. XIII.
+
+    _ CHAP. XIIII.
+
+1. THE THIRD BOOKE OF
+DISCIPLINARY GROVNDES
+and Practises.
+
+    _ CHAP I.
+
+    _ CHAP. II.
+
+    _ CHAP. III.
+
+      * The Decrees.
+
+    _ CHAP. IIII.
+
+    _ CHAP. V.
+
+    _ CHAP. VI.
+
+    _ CHAP. VII.
+
+    _ CHAP. VIII.
+
+    _ CHAP. IX.
+
+    _ CHAP. X.
+
+    _ CHAP. XI.
+
+    _ CHAP. XII.
+
+    _ CHAP. XIII.
+
+      * Synodes.
+
+      * Hitherto concerning particular assemblies. Now followes
 the vniuersall or oecumenicall Synode of
 the whole world.
+
+    _ CHAP. XIIII.
+
+    _ CHAP. XV.
+
+    _ CHAP. XVI.
+
+1. THE FOVRTH BOOKE OF
+DISCIPLINARY GROVNDES
+and Practises.
+
+    _ CHAP. 1.
+
+    _ CHAP. II.
+
+    _ CHAP. III.
+
+    _ CHAP. IIII.
+
+    _ CHAP. V.
+
+    _ CHAP. VI.
+
+    _ CHAP. VII.
+
+    _ CHAP. VIII.
+
+    _ CHAP. IX.
+
+    _ CHAP. X.
+
+    _ CHAP. XI.
+
+    _ CHAP. XII.
+
+    _ CHA. XIII.
+
+    _ CHAP. XIIII.
+
+    _ CHAP. XV.
 
 **Types of content**
 
